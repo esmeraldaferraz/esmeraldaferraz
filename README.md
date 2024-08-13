@@ -8,5 +8,6 @@ Meu nome é Esmeralda Ferraz
 
 ### voce pode entrar em contato comigo
 @esmeraldaferraz
-!.[...](https://media1.tenor.com/m/JHp-pctUPkcAAAAC/margotsprestige-monkey-backpack.gif)
 
+
+![](https://media1.tenor.com/m/JHp-pctUPkcAAAAC/margotsprestige-monkey-backpack.gif)
